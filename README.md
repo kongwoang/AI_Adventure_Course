@@ -8,8 +8,11 @@ trường thực hiện. Do đây là lần đầu chúng em cùng nhau thực h
 về Học máy nên sản phẩm có thể có một vài sai sót. Chúng em mong các thầy,
 cô, anh, chị có thể thông cảm. Mọi góp ý, thắc mắc xin quý bạn đọc liên hệ
 với các thành viên trong nhóm.
-• Phạm Công Hoàng - Email: hoangphamconglc2212@gmail.com\\
-• Nguyễn Đức Dũng - Email: dung11071979@gmail.com
-• Nguyễn Gia Minh - Email: ngminh209206@gmail.com
+• Phạm Công Hoàng - Email: hoangphamconglc2212@gmail.com\
+
+• Nguyễn Đức Dũng - Email: dung11071979@gmail.com\
+
+• Nguyễn Gia Minh - Email: ngminh209206@gmail.com\
+
 • Nguyễn Danh Bảo - Email: ndbgm2k6@gmail.com
 
